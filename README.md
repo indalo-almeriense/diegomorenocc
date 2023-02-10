@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @diegomorenocc
-- 👀 I’m interested in ...
+- 👀 I’m interested in boys
 - 🌱 I’m currently learning Mathematics, Economics, Statistics and Computer Science
 - 💞️ I’m looking to collaborate on data, algoritms and mathematic projects, papers and conversations
 - 📫 How to reach me:
